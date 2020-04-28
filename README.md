@@ -1,0 +1,1 @@
+# code-permetant-de-se-reperer-finit-mais-doit-regler-une-erreur-lier-a-LINTERVALL
